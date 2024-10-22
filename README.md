@@ -5,14 +5,14 @@
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206283575022602.jpg" "width="" height="30"> <br />
   $\color{#e25b5b}{«~..~I~wasted~like~half~of~my~summer~tryna~..~»}$<br /> 
  $\color{#e25b5b}{«~..~—~hold~on~your~hand~—~..~»}$ <br /> 
- $\color{#fabda1}{︶֪︶︶֪︶︶︶֪︶︶֪︶︶ིྀ︶︶֪︶︶︶֪︶︶֪︶︶֪ }$<br />
- $\color{#854847}{Hai~,~(⁠≧⁠▽⁠≦⁠)~.}$ <br />
+ $\color{#fabda1}{─~·~·~─~·・┆✦ʚ♡ɞ✦ ┆・·~─~·~·~─}$<br />
+ $\color{#854847}{Hai~,~(｡˃ ᵕ ˂ )~.ᐟ.ᐟ}$ <br />
 $\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/WheresTheExit"><img src="https://files.catbox.moe/60hbmn.gif" "width="" height=20" > </a> <br />
 <img src="https://file.garden/Zlo7whFY2AfQROME/20240910_060339.jpg" "width="" height="120"> <br />
-  $\color{#c17665}{࿐༘་🐺~୨~♡~୧~🐇་༘࿐}$ <br />
+  $\color{#c17665}{࿐༘་🐺~୨~ꕤ~୧~🐇་༘࿐}$ <br />
   $\color{#854847}{Check~out~my~rentry~below~!!~Strawpage~is~on~it~.}$<br />
 <img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="" height="40"> <a href="https://rentry.co/LuvUrBlood"><img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_4374811607490.gif" "width="" height=30" > </a> <img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="" height="40"> <br />
-  $\color{#fabda1}{︶֪︶︶֪︶︶︶֪︶︶֪︶︶ིྀ︶︶֪︶︶︶֪︶︶֪︶︶֪ }$<br />
+  $\color{#fabda1}{─~·~·~─~·・┆✦ʚ♡ɞ✦ ┆・·~─~·~·~─}$<br />
   $\color{#e25b5b}{«~..~—~You~'~re~the~leech~,~I~'~m~the~man~,~..~»}$ <br /> 
  $\color{#e25b5b}{«~..~—~I~guess~you~don~'~t~understand~..~»}$ <br />
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206285126638910.jpg" "width="" height="30"> <br />
