@@ -3,18 +3,18 @@
   <img src="https://visitcount.itsvg.in/api?id=LuvUrGutz&label=%CB%86%F0%90%83%B7%CB%86&color=10&icon=7&pretty=false" /> <br />
 </a>
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206283575022602.jpg" "width="" height="30"> <br />
-  $\color{#e25b5b}{«~..~I~got~a~red~Ferrari~,~I'm~a~superstar~..~»}$<br /> 
- $\color{#e25b5b}{«~..~—I~really~like~to~party~,~Am~I~cool~or~what~?~..~»}$ <br /> 
+  $\color{#e25b5b}{⌞~I~guess~I~belong~in~hell~,~Is~God~the~devil~himself~?~⌝}$<br /> 
+ $\color{#e25b5b}{⌞~Brittle~Bones~Nicky~,~You're~not~crafty~or~tricky~⌝}$ <br /> 
  $\color{#fabda1}{─~·~·~─~·・┆✦ʚ♡ɞ✦ ┆・·~─~·~·~─}$<br />
  $\color{#854847}{Hai~,~(｡˃ ᵕ ˂ )~.ᐟ.ᐟ}$ <br />
 $\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/WheresTheExit"><img src="https://files.catbox.moe/60hbmn.gif" "width="" height=20" > </a> <br />
 <img src="https://file.garden/Zlo7whFY2AfQROME/20240910_060339.jpg" "width="" height="120"> <br />
   $\color{#c17665}{࿐༘་🐺~୨~ꕤ~୧~🐇་༘࿐}$ <br />
-  $\color{#854847}{Check~out~my~rentry~below~!!}$<br />
-<img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="" height="40"> <a href="https://rentry.co/LuvUrBlood"><img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_4374811607490.gif" "width="" height=30" > </a> <img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="" height="40"> <br />
+  $\color{#854847}{Bai~,~٩(˃ᗜ˂~)و~.ᐟ.ᐟ}$<br />
+<img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="" height="40"> <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_4374811607490.gif" "width="" height=30"> <img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="" height="40"> <br />
   $\color{#fabda1}{─~·~·~─~·・┆✦ʚ♡ɞ✦ ┆・·~─~·~·~─}$<br />
-  $\color{#e25b5b}{«~..~I~love~a~lot~of~women~,~I'm~a~superstar~—~..~»}$ <br /> 
- $\color{#e25b5b}{«~..~Stars~got~a~freaky~living~,~That's~the~way~we~are~..~»}$<br />
+  $\color{#e25b5b}{⌞~You're~a~son~of~a~bitch~,~you're~alone~⌝}$ <br /> 
+ $\color{#e25b5b}{⌞~Welcome~to~your~new~home~⌝}$<br />
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206285126638910.jpg" "width="" height="30"> <br />
 <sub/> $\color{#fabda1}{₊˚⊹♡~`~~ᶻ~𝘇~𐰁~...~႔~~႔}$ </sub> <br />
 <sub/> $\color{#fabda1}{໒꒰ྀི｡-~˕~-｡ྀི꒱১~~ᠸ◠~◠~𐅠}$ </sub> <br />
