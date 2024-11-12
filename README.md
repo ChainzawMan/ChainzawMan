@@ -11,7 +11,6 @@ $\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/MoiiMe
 <img src="https://file.garden/Zlo7whFY2AfQROME/20240910_060339.jpg" "width="" height="120"> <br />
   $\color{#c17665}{࿐༘་🐺~୨~ꕤ~୧~🐇་༘࿐}$ <br />
   $\color{#854847}{Bai~,~٩(˃ᗜ˂~)و~.ᐟ.ᐟ}$<br />
-<img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="" height="40"> <img src="https://files.catbox.moe/psva73.gif" "width="" height=30"> <img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="" height="40"> <br />
   $\color{#fabda1}{─~·~·~─~·・┆✦ʚ♡ɞ✦ ┆・·~─~·~·~─}$<br />
   $\color{#e25b5b}{⌞~You're~a~son~of~a~bitch~,~you're~alone~⌝}$ <br /> 
  $\color{#e25b5b}{⌞~Welcome~to~your~new~home~⌝}$<br />
