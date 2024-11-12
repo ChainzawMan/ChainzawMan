@@ -1,6 +1,6 @@
 <p align="center">
  <a href="https://visitcount.itsvg.in">
-  <img src="https://visitcount.itsvg.in/api?id=LuvUrGutz&label=%CB%86%F0%90%83%B7%CB%86&color=10&icon=7&pretty=true" /> <br />
+  <img src="https://visitcount.itsvg.in/api?id=LuvUrGutz&label=%CB%86%F0%90%83%B7%CB%86&color=7&icon=7&pretty=true" /> <br />
 </a>
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206283575022602.jpg" "width="" height="30"> <br />
   $\color{#e25b5b}{⌞~I~guess~I~belong~in~hell~,~Is~God~the~devil~himself~?~⌝}$<br /> 
