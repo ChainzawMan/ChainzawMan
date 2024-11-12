@@ -1,6 +1,6 @@
 <p align="center">
  <a href="https://visitcount.itsvg.in">
-  <img src="https://visitcount.itsvg.in/api?id=LuvUrGutz&label=%CB%86%F0%90%83%B7%CB%86&color=10&icon=7&pretty=false" /> <br />
+  <img src="https://visitcount.itsvg.in/api?id=LuvUrGutz&label=%CB%86%F0%90%83%B7%CB%86&color=10&icon=7&pretty=true" /> <br />
 </a>
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206283575022602.jpg" "width="" height="30"> <br />
   $\color{#e25b5b}{⌞~I~guess~I~belong~in~hell~,~Is~God~the~devil~himself~?~⌝}$<br /> 
@@ -11,7 +11,7 @@ $\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/MoiiMe
 <img src="https://file.garden/Zlo7whFY2AfQROME/20240910_060339.jpg" "width="" height="120"> <br />
   $\color{#c17665}{࿐༘་🐺~୨~ꕤ~୧~🐇་༘࿐}$ <br />
   $\color{#854847}{Bai~,~٩(˃ᗜ˂~)و~.ᐟ.ᐟ}$<br />
-<img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="" height="40"> <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_4374811607490.gif" "width="" height=30"> <img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="" height="40"> <br />
+<img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="" height="40"> <img src="https://files.catbox.moe/psva73.gif" "width="" height=30"> <img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="" height="40"> <br />
   $\color{#fabda1}{─~·~·~─~·・┆✦ʚ♡ɞ✦ ┆・·~─~·~·~─}$<br />
   $\color{#e25b5b}{⌞~You're~a~son~of~a~bitch~,~you're~alone~⌝}$ <br /> 
  $\color{#e25b5b}{⌞~Welcome~to~your~new~home~⌝}$<br />
