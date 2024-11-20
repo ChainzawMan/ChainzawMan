@@ -7,7 +7,7 @@
  $\color{#e25b5b}{⌞~Brittle~Bones~Nicky~,~You're~not~crafty~or~tricky~⌝}$ <br /> 
  $\color{#fabda1}{─~·~·~─~·・┆✦ʚ♡ɞ✦ ┆・·~─~·~·~─}$<br />
  $\color{#854847}{Hai~,~(｡˃ ᵕ ˂ )~.ᐟ.ᐟ}$ <br />
-$\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/MoiiMemeMoitie"><img src="https://files.catbox.moe/60hbmn.gif" "width="" height=20" > </a> <br />
+$\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/MoiiMemeMoitie"><img src="https://files.catbox.moe/cp0b7d.gif" "width="" height=20" > </a> <br />
 <img src="https://files.catbox.moe/a8zhm9.jpg" "width="" height="130"> <br />
   $\color{#c17665}{࿐༘་🐺~୨~ꕤ~୧~🐇་༘࿐}$ <br />
   $\color{#854847}{Bai~,~٩(˃ᗜ˂~)و~.ᐟ.ᐟ}$<br />
