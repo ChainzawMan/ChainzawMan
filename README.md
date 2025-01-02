@@ -9,8 +9,8 @@
  $\color{#854847}{Hai~,~(｡˃ ᵕ ˂ )~.ᐟ.ᐟ}$ <br />
 $\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/MoiiMemeMoitie"><img src="https://files.catbox.moe/8yo5jl.gif" "width="" height=20" > </a> <br />
 <img src="https://files.catbox.moe/5t2xbh.jpg" "width="" height="130"> <br />
-  $\color{#c17665}{࿐༘་🐺~୨~ꕤ~୧~🐇་༘࿐}$ <br />
-  $\color{#854847}{Bai~,~٩(˃ᗜ˂~)و~.ᐟ.ᐟ}$<br />
+  $\color{#c17665}{࿐༘་🦊~୨~ꕤ~୧~🐇་༘࿐}$ <br />
+  $\color{#854847}{Semi~-~Hiatus~,~૮꒰ ˶• ༝ •˶꒱ა ♡~.ᐟ.ᐟ}$<br />
   $\color{#fabda1}{─~·~·~─~·・┆✦ʚ♡ɞ✦ ┆・·~─~·~·~─}$<br />
   $\color{#e25b5b}{⌞~You're~a~son~of~a~bitch~,~you're~alone~⌝}$ <br /> 
  $\color{#e25b5b}{⌞~Welcome~to~your~new~home~⌝}$<br />
