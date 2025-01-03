@@ -3,8 +3,8 @@
   <img src="https://visitcount.itsvg.in/api?id=LuvUrGutz&label=Want your name .&color=7&icon=7&pretty=true" /> <br />
 </a>
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206283575022602.jpg" "width="" height="30"> <br />
-  $\color{#e25b5b}{⌞~I~guess~I~belong~in~hell~,~Is~God~the~devil~himself~?~⌝}$<br /> 
- $\color{#e25b5b}{⌞~Brittle~Bones~Nicky~,~You're~not~crafty~or~tricky~⌝}$ <br /> 
+  $\color{#e25b5b}{⌞~He~wakes~up~in~the~middle~of~the~night~⌝}$<br /> 
+ $\color{#e25b5b}{⌞~I~run~in~and~turn~on~the~light~⌝}$ <br /> 
  $\color{#fabda1}{─~·~·~─~·・┆✦ʚ♡ɞ✦ ┆・·~─~·~·~─}$<br />
  $\color{#854847}{Hai~,~(｡˃ ᵕ ˂ )~.ᐟ.ᐟ}$ <br />
 $\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/MoiiMemeMoitie"><img src="https://files.catbox.moe/8yo5jl.gif" "width="" height=20" > </a> <br />
@@ -12,8 +12,8 @@ $\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/MoiiMe
   $\color{#c17665}{࿐༘་🦊~୨~ꕤ~୧~🐇་༘࿐}$ <br />
   $\color{#854847}{Semi~-~Hiatus~,~૮꒰ ˶• ༝ •˶꒱ა ♡~.ᐟ.ᐟ}$<br />
   $\color{#fabda1}{─~·~·~─~·・┆✦ʚ♡ɞ✦ ┆・·~─~·~·~─}$<br />
-  $\color{#e25b5b}{⌞~You're~a~son~of~a~bitch~,~you're~alone~⌝}$ <br /> 
- $\color{#e25b5b}{⌞~Welcome~to~your~new~home~⌝}$<br />
+  $\color{#e25b5b}{⌞~Run~my~hands~through~his~short~black~hair~⌝}$ <br /> 
+ $\color{#e25b5b}{⌞~I~love~you~,~Harvey~,~I~don't~care~⌝}$<br />
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206285126638910.jpg" "width="" height="30"> <br />
  <img src="https://files.catbox.moe/quctil.gif" "width="" height="55"><img src="https://files.catbox.moe/ojboij.gif" "width="" height="55"><img src="https://files.catbox.moe/igz5ao.gif" "width="" height="55"><img src="https://files.catbox.moe/4os0jv.gif" "width="" height="55"> <br />
  <img src="https://files.catbox.moe/2qo1ye.jpg" "width="" height="54"><img src="https://files.catbox.moe/bedq7w.png" "width="" height="54"><img src="https://files.catbox.moe/xbu5dw.png" "width="" height="54"><img src="https://files.catbox.moe/i6jrbi.png" "width="" height="54"> <br />
