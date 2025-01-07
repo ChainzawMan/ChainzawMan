@@ -1,9 +1,4 @@
 <p align="center">
- <a href="https://visitcount.itsvg.in">
-  <img src="https://visitcount.itsvg.in/api?id=LuvUrGutz&label=Want your name .&color=7&icon=7&pretty=true" /> <br />
-</a>
- <imh src="https://files.catbox.moe/zyt90o.png" "width="" height="30"> <br />
- $\color{#854847}{The~visit~counter~keeps~breaking~:(~..}$ <br />
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206283575022602.jpg" "width="" height="30"> <br />
   $\color{#e25b5b}{⌞~He~wakes~up~in~the~middle~of~the~night~⌝}$<br /> 
  $\color{#e25b5b}{⌞~I~run~in~and~turn~on~the~light~⌝}$ <br /> 
