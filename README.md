@@ -1,5 +1,5 @@
 <p align="center">
- <a href="https://chainzawman.straw.page"><img src="https://files.catbox.moe/z97noa.webp" "width="" height="30"></a> $\color{#fabda1}{;~Strawpage~—~—~—~Atabook~;}$ <img src="https://files.catbox.moe/58b7ba.jpg" "width="" height="30"> <br />
+ <a href="https://chainzawman.straw.page"><img src="https://files.catbox.moe/z97noa.webp" "width="" height="30"></a> $\color{#fabda1}{;~Strawpage~—~—~—~Atabook~;}$ <a href="https://chainzawman.atabook.org"><img src="https://files.catbox.moe/58b7ba.jpg" "width="" height="30"></a> <br />
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206283575022602.jpg" "width="" height="30"> <br />
   $\color{#e25b5b}{⌞~He~wakes~up~in~the~middle~of~the~night~⌝}$<br /> 
  $\color{#e25b5b}{⌞~I~run~in~and~turn~on~the~light~⌝}$ <br /> 
