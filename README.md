@@ -1,5 +1,4 @@
 <p align="center">
- <a href="https://www.last.fm/user/ChainzawMan"><img src="https://files.catbox.moe/z97noa.webp" "width="" height="30"></a> $\color{#fabda1}{«~Click~wings~4~:~═✿═~:~my~last~.~fm~»}$ <a href="https://www.last.fm/user/ChainzawMan"><img src="https://files.catbox.moe/58b7ba.jpg" "width="" height="30"></a> <br />
  <img src="https://files.catbox.moe/ztbi24.jpg" "width="" height="30"> <br />
   $\color{#e25b5b}{⌞~He~wakes~up~in~the~middle~of~the~night~⌝}$<br /> 
  $\color{#e25b5b}{⌞~I~run~in~and~turn~on~the~light~⌝}$ <br /> 
