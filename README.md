@@ -1,4 +1,6 @@
 <p align="center">
+ $\color{#fabda1}{ᘏ~⑅~ᘏ~~~ഒ~~~~zᶻ}$ <br />
+ $\color{#fabda1}{꒰˶~~-~˕~-꒱~⌒)ᦱ}$ <br />
  <img src="https://files.catbox.moe/ztbi24.jpg" "width="" height="30"> <br />
   $\color{#e25b5b}{⌞~I~eat~boys~up~,~breakfast~and~lunch~⌝}$<br /> 
  $\color{#e25b5b}{⌞~Then~when~I'm~thirsty~,~I~drink~their~blood~⌝}$ <br /> 
