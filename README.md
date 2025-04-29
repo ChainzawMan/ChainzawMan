@@ -1,6 +1,12 @@
 <p align="center">
- $\color{#fabda1}{ᘏ~⑅~ᘏ~~~ഒ~~~~zᶻ}$ <br />
- $\color{#fabda1}{꒰˶~~-~˕~-꒱~⌒)ᦱ}$ <br />
+ $\color{#e25b5b}{ᘏ~⑅~ᘏ~~~ഒ~~~~zᶻ}$ <br />
+ $\color{#e25b5b}{꒰˶~~-~˕~-꒱~⌒)ᦱ}$ <br />
+$\color{#fabda1}{Ponytown~info~:~}$ <br />
+<sub/> $\color{#854847}{C~+~H~is~always~welcome~UNLESS~,~I~'~m~with~friends~as~}$ </sub> <br />
+ $\color{#854847}{they~might~not~want~ppl~around~for~whatever~reason~.}$ <br />
+ <sub/> $\color{#854847}{Please~,~do~NOT~copy~my~skins~!~Quite~a~few~are~gifted~}$ </sub> <br />
+$\color{#854847}{from~friends~/~skins~I~bought~through~commissions~.}$ <br />
+ <sub/> $\color{#fabda1}{Other~than~that~,~I~hide~freely~!~More~info~is~on~my~DNI~!}$ </sub> <br /> <br />
  <img src="https://files.catbox.moe/ztbi24.jpg" "width="" height="30"> <br />
   $\color{#e25b5b}{⌞~Everybody~has~a~real~good~time~⌝}$<br /> 
  $\color{#e25b5b}{⌞~Wont~you~be~my~Prom~Queen~?~⌝}$ <br /> 
